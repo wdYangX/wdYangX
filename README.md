@@ -1,6 +1,6 @@
-_**Effort only fully releases its reward after a person refuses to quit.**_
+_**The best way to predict the future is to create it.**_
 
-Napoleon Hill
+Abraham Lincoln
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
