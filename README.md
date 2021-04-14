@@ -1,6 +1,6 @@
-_**Remove the temptation to settle for anything short of what you deserve.**_
+_**Many a false step was made by standing still.**_
 
-Lorii Myers
+Fortune Cookie
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
