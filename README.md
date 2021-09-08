@@ -1,6 +1,6 @@
-_**Some men see things as they are and say why.. I dream things that never were and say why not.**_
+_**I keep asking myself these three questions.. What do you have? What do you want? What will you give up?**_
 
-George Bernard Shaw
+Jack Ma
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
