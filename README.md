@@ -1,6 +1,6 @@
-_**When you win, say nothing. When you lose, say less.**_
+_**Named must your fear be before banish it you can.**_
 
-Paul Brown
+Yoda
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
