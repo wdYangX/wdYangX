@@ -1,6 +1,6 @@
-_**The man who removes a mountain begins by carrying away small stones..**_
+_**When you win, say nothing. When you lose, say less.**_
 
-Chinese Proverb
+Paul Brown
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
