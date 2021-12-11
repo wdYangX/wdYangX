@@ -1,6 +1,6 @@
-_**Effort only fully releases its reward after a person refuses to quit.**_
+_**A show of confidence raises the bar**_
 
-Napoleon Hill
+Lorii Myers
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
