@@ -1,6 +1,6 @@
-_**We don't have to do all of it alone. We were never meant to.**_
+_**Winning is nice if you don't lose your integrity in the process.**_
 
-Brene Brown
+Arnold Horshak
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
