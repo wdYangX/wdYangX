@@ -1,6 +1,6 @@
-_**Our words are buttressed by our deeds, and our deeds are inspired by our convictions.**_
+_**Named must your fear be before banish it you can.**_
 
-Theodore Hesburgh
+Yoda
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
