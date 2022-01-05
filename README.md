@@ -1,6 +1,6 @@
-_**It wasn't raining when Noah built the ark..**_
+_**You will never win if you never begin.**_
 
-Howard Ruff
+Helen Rowland
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
