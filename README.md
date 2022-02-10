@@ -1,6 +1,6 @@
-_**From now on we live in a world where man has walked on the Moon. It's not a miracle; we just decided to go.**_
+_**Go confidently in the direction of your dreams. Live the life you've imagined. As you simplify your life, the laws of the universe will be simpler.**_
 
-Tom Hanks
+Henry David Thoreau
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
