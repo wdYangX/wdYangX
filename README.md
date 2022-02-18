@@ -1,6 +1,6 @@
-_**If you like what you do, and you're lucky enough to be good at it, do it for that reason.**_
+_**Great things are done by a series of small things brought together.**_
 
-Phil Grimshaw
+Vincent Van Gogh
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
