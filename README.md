@@ -1,6 +1,6 @@
-_**Each player must accept the cards life deals him or her: but once they are in hand, he or she alone must decide how to play the cards in order to win the game.**_
+_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
 
-Voltaire
+Honore de Balzac
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
