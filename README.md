@@ -1,6 +1,6 @@
-_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
+_**Great things are done by a series of small things brought together.**_
 
-Ray Kroc
+Vincent Van Gogh
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
