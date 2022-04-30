@@ -1,6 +1,6 @@
-_**The real opportunity for success lies within the person and not in the job.**_
+_**We lose ourselves in the things we love. We find ourselves there, too.**_
 
-Zig Ziglar
+Dale Patridge
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
