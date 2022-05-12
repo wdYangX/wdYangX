@@ -1,6 +1,6 @@
-_**We don't have to do all of it alone. We were never meant to.**_
+_**People who are crazy enough to think they can change the world, are the ones who do.**_
 
-Brene Brown
+Apple Computers
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
