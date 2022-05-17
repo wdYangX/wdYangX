@@ -1,6 +1,6 @@
-_**Remove the temptation to settle for anything short of what you deserve.**_
+_**Winners lose much more often than losers. So if you keep losing but you're still trying, keep it up! You.. Re right on track.**_
 
-Lorii Myers
+Matthew Keith Groves
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
