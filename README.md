@@ -1,6 +1,6 @@
-_**We lose ourselves in the things we love. We find ourselves there, too.**_
+_**Don't be tempted to break momentum-work through it.**_
 
-Dale Patridge
+Lorii Myers
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
