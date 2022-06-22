@@ -1,6 +1,6 @@
-_**What you do speaks so loudly that I cannot hear what you say.**_
+_**You will never win if you never begin.**_
 
-Ralph Waldo Emerson
+Helen Rowland
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
