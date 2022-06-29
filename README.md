@@ -1,6 +1,6 @@
-_**A show of confidence raises the bar**_
+_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
 
-Lorii Myers
+Honore de Balzac
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
