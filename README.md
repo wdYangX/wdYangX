@@ -1,6 +1,6 @@
-_**Find a purpose in life so big it will challenge every capacity to be at your best.**_
+_**Do the best you can until you know better. Then when you know better, do better.**_
 
-David O. McKay
+Maya Angelou
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
