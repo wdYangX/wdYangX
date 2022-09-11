@@ -1,6 +1,6 @@
-_**A quitter never wins and a winner never quits**_
+_**You are very powerful, provided you know how powerful you are.**_
 
-Napoleon Hill
+Yogi Bhajan
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
