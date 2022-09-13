@@ -48,6 +48,6 @@ Vince Lombardi
 
 ### 📫 Contact me via:
 
-[![LinkedIN](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&color=%23003140&logoColor=white)](https://www.linkedin.com/in/duongphamduc/)
+[![LinkedIN](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&color=%23003140&logoColor=white)](www.linkedin.com/in/wd-yang)
 
 [website]: https://www.youtube.com/channel/UCTXLBZDx5FY4fc-GM4SARTA
