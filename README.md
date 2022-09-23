@@ -1,6 +1,6 @@
-_**If we ever stop thinking about the person we want to become, we stop learning and taking risks.**_
+_**When you win, say nothing. When you lose, say less.**_
 
-Sally Blount
+Paul Brown
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
