@@ -1,6 +1,6 @@
-_**Some men see things as they are and say why.. I dream things that never were and say why not.**_
+_**At that point where you have decided to upgrade from aspiration to expectation and have begun to visualize an outcome, something incredibly important has happened, you have committed to the process of change.**_
 
-George Bernard Shaw
+Lorii Myers
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
