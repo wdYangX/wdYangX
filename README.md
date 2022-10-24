@@ -1,6 +1,6 @@
-_**Think in terms of opportunities and solutions instead of problems, disappointment, and failure.**_
+_**Don't count the days; make the days count.**_
 
-Lorii Myers
+Mohamad Ali
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
