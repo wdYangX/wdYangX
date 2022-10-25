@@ -1,6 +1,6 @@
-_**Don't count the days; make the days count.**_
+_**The journey of a thousand miles begins with one step.**_
 
-Mohamad Ali
+Lao Tzu
 
 ### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
 
