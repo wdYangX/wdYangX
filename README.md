@@ -1,6 +1,6 @@
 _**Hang Out with People Who are Better than You.**_
 
-### Hi, I'm Duong Pham <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 
+<span>Hi, I'm <b>wdYang</b> <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> - aka [wdYangX][website] = Software Engineer + Youtuber + Create crazy things🌱 </span>
 
 - 🔭 I'm passionate about AI, Cryptocurrency Exchange, Blockchain, Python
 - 🥅 2021 Goals: Working on more AI and Blockchain
